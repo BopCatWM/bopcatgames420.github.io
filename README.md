@@ -1,2 +1,2 @@
 # bopcatgames420
-#The Best Gaming website for school
+The Best Gaming website for school
